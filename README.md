@@ -9,9 +9,9 @@ Parts per Paddle Shifter
 
 5x M3 Cap socket screws 30mm https://ebay.to/2kolXNE
 
-2x Neodymium magnets https://ebay.to/2lETnrz
+2x Neodymium magnets 8x5mm https://ebay.to/2lETnrz
 
-1x Micro lever switch eBay https://ebay.to/2vERsFo
+1x Micro lever switch eBay kw-10 https://ebay.to/2vERsFo
 
 Wire https://goo.gl/jMLLa5
 
